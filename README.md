@@ -19,6 +19,7 @@
 ## 相关文章
 
 - [2020年度南宁互联网IT行业薪资生存调查投票](https://mp.weixin.qq.com/s/UUEb6hwz0kyxJ0FNWAmCow)
+- [南宁IT互联网行业薪资福利待遇如何？](https://www.zhihu.com/question/433565931)
 - [五年了，再谈南宁和深圳的差距](https://zhuanlan.zhihu.com/p/142617368)
 - [月薪一万在南宁能过什么样的生活？](https://www.zhihu.com/question/54175558)
 - [南宁前端开发工作好找吗，待遇怎么样？](https://www.zhihu.com/question/357144952)
