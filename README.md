@@ -29,6 +29,8 @@
 - [2020年在广西南宁月工资1.2万算什么水平？](https://www.zhihu.com/question/399156877)
 - [南宁大环境怎么样？互联网行业在南宁有大前途吗？应届毕业生面临找工作，大神求回答？](https://www.zhihu.com/question/56500199)
 - [南宁有哪些著名的it公司？](https://www.zhihu.com/question/264215051)
+- [如何看待南宁这座城？](https://www.zhihu.com/question/322456318)
+- [让你决定留在南宁的原因是什么？](https://www.zhihu.com/question/54175470)
 
 
 ### 南宁IT内推圈公众号： nnitjob 同行交流加微信：biaogebusy
