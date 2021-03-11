@@ -34,4 +34,4 @@
 - [让你决定留在南宁的原因是什么？](https://www.zhihu.com/question/54175470)
 
 
-### 南宁IT内推圈公众号： nnitjob 同行交流加微信：biaogebusy
+### 南宁IT派公众号： nnitpai
